@@ -2,7 +2,6 @@
 
 # EZRA ZHANG
 
-**FORM 10-EZ/A · ANNUAL REPORT — AMENDMENT No. 1**
 <sub>filed pursuant to absolutely no regulatory requirement · restated to reflect a change in operating segments</sub>
 
 cs + econ @ unc chapel hill '30 · boston ⇄ chapel hill
